@@ -1,1 +1,1 @@
-Welcome to Arthur's (A.K.A. GYM) portfolio!
+Welcome to Arthur's (GYM) portfolio!
